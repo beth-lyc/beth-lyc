@@ -6,6 +6,6 @@
 - 🤔 I’m looking for help with ...-->
 - 💬 Ask me about sushi <!--- 📫 How to reach me: ...-->
 - 😄 Pronouns: she
-- ⚡ Fun fact: I love sushi
+- ⚡ Fun fact: I love sushi!!!
 
 
